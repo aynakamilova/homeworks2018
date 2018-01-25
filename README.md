@@ -6,4 +6,4 @@
 #### Курс: ~третий~ первый
 * [почта](mailto:aynakamilova@gmail.com)
 * [Telegram](htts://t.me/freezing_summer)
-
+![]()
