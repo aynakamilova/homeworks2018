@@ -22,4 +22,4 @@
    + ГТО
 * [почта](mailto:aynakamilova@gmail.com)
 * [Telegram](https://t.me/freezing_summer)
-![](https://www.google.ru/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=0ahUKEwjf-bj3-_LYAhUEiSwKHfapCdIQjRwIBw&url=http%3A%2F%2Fyumenohikari.ru%2Fcategory%2Fjapan_art&psig=AOvVaw0fID70UltQxJHQOhrGo-8S&ust=1516964668529100)
+![](http://yumenohikari.ru/img/category/japan_art.jpg)
