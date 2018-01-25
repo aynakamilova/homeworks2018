@@ -20,6 +20,8 @@
    + танцы
    + ИЗО
    + ГТО
+![](http://yumenohikari.ru/img/category/japan_art.jpg)
 * [почта](mailto:aynakamilova@gmail.com)
 * [Telegram](https://t.me/freezing_summer)
-![](http://yumenohikari.ru/img/category/japan_art.jpg)
+
+
