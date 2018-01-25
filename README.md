@@ -19,7 +19,7 @@
    + плавание
    + танцы
    + ИЗО
-   + ГТО
+   + кино
    
 ![](http://yumenohikari.ru/img/category/japan_art.jpg)
 
